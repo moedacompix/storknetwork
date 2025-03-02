@@ -14,8 +14,11 @@ A Stork Network é um mercado de dados descentralizado, permitindo que desenvolv
 A Stork Network incentiva os primeiros usuários a se juntarem à rede e contribuírem de diversas maneiras. Veja como você pode participar:
 
 ✅ Baixe a extensão da Stork Network e comece a interagir com a plataforma.
+
 ✅ Utilize um código de indicação para aumentar suas chances de recompensas.
+
 ✅ Participe da comunidade, contribuindo com feedback, sugestões e interações.
+
 ✅ Atue como publicador, agregador ou assinante dentro do ecossistema.
 
 💡 Por que Participar?
